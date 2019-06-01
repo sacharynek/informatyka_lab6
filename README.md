@@ -1,0 +1,1 @@
+# informatyka_lab6
